@@ -93,3 +93,22 @@ iPhone 5S. A complete online store that is possible
 use for a small company selling computer equipment.
 
 
+## Education
+
+* University: Brest, "College of Business and Law"
+* Courses:
+    * CS50 lectures
+    * SoloLearn Certificate HTML Course
+    * ONLINE SUMMER BOOTCAMP
+
+## English
+
+B1
+
+## Conclusion
+
+Over the past years, I have carried out a successful
+activity in the chosen direction and motivated
+continue to study and work. The attached CV will give
+an idea of ​​my experience, qualifications and potential
+opportunities.
